@@ -10,7 +10,7 @@ description = ""
 
 Mia Flühmann und Line Gmür
 
-![Bildunterschrift](klost.jpg)
+![Bleibende Zeuginnen der Vergangenheit: Schädel von ehemaligen Schwestern, die im Laufe der 400-jährigen Existenz im Kloster Namen Jesú verstorben sind. (Fotografie von Mia Flühmann, Stand: 5.1.24)](klost.jpg)
 
 hdudsdiu jnsdj
 
