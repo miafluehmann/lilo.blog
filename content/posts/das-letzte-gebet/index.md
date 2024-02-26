@@ -32,7 +32,11 @@ An den Esssaal grenzt eine geräumige Küche. Der Edelstahl glänzt und alles wi
 
 
 
+
+
 ***Weise mir, Herr, deinen Weg. Ich w§ill ihn gehen in Treue zu dir.***
+
+
 
 
 
