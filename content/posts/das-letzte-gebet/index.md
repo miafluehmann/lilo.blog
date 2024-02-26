@@ -46,14 +46,14 @@ Nach dem Mittagsgebet im Gebetszimmer schreitet die Gemeinschaft bedächtig in d
 
 
 
-> \    "Ich gebe dem Ganzen noch fünf Jahre” (Schwester Therese)
+>  *\    "Ich gebe dem Ganzen noch fünf Jahre” (Schwester Therese)*
 
 \
 Im ersten Stock befinden sich die Zellen, die Schlafzimmer. Viele von ihnen stehen jedoch leer. Doch nicht mehr lange. Im Mai 2023 ist ein Projekt im Westflügel des Klosters angelaufen. “Das Zentrum für Arbeit und Stille” soll in Zukunft ein Ort für ruhesuchende Menschen werden und auch Übernachtungsmöglichkeiten anbieten. Es gibt auch bereits erste Pläne, wie das ganze Gebäude nach der Schwesternschaft genutzt werden soll. Den Schwestern ist dabei wichtig, Mitspracherecht bei der Planung zu haben.
 
 
 
-Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.
+`Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.`
 
 
 
