@@ -16,12 +16,16 @@ Das Läuten der Glocke hallt durch weitläufige Gänge. Mit dem letzten Schlag k
 
 
 
+
+
 ***Herr Jesus Christus, du Anfang und Ende unserer Wege***\
 ***Wir wollen mit dir beginnen***\
 ***Es sind die alten Wege, die damals gegangen***\
 ***als du mit uns anfingst in der Taufe***
 
 ***Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.***
+
+
 
 
 
