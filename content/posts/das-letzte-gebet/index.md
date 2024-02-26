@@ -45,13 +45,15 @@ Nach dem Mittagsgebet im Gebetszimmer schreitet die Gemeinschaft bedächtig in d
 \
 Im ersten Stock befinden sich die Zellen, die Schlafzimmer. Viele von ihnen stehen jedoch leer. Doch nicht mehr lange. Im Mai 2023 ist ein Projekt im Westflügel des Klosters angelaufen. “Das Zentrum für Arbeit und Stille” soll in Zukunft ein Ort für ruhesuchende Menschen werden und auch Übernachtungsmöglichkeiten anbieten. Es gibt auch bereits erste Pläne, wie das ganze Gebäude nach der Schwesternschaft genutzt werden soll. Den Schwestern ist dabei wichtig, Mitspracherecht bei der Planung zu haben.
 
-***Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.***
+
 
 {{<box>}}
 
 Im Kapuzinerinnenkloster Namen Jesú lebt die Schwesterngemeinschaft seit 1609. Jahrhunderte lang lebte der Orden fernab der Gesellschaft. Aufgrund des hohen Alters sind die Schwestern heute auf externe Hilfe angewiesen. So geht es heute den meisten Klöstern. Kaum noch haben junge Menschen Interesse an einem ewigen Gelübde. Man konnte in den letzten Jahren ein  Wachstum an religionslosen Menschen erkennen. Klöster sind ein Spiegel unserer Gesellschaft und daher ist es nur nachvollziehbar, dass es bei einer Gesellschaft im Wandel auch einen solchen im Kloster geben muss. Klöster kämpfen ums Überleben und öffnen sich immer mehr. Sie bieten Urlaub oder  Bildungsmöglichkeiten an, um sich eine Relevanz in unserer schnelllebigen Zeit zu verschaffen.
 
 {{</box>}}
+
+***Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.***
 
 Der Rundgang endet in der hauseigenen Hostienbäckerei. Die Plättchen aus Wasser und Mehl sind die Haupteinnahmequelle der Schwestern. Die Herstellung ist körperlich sehr anstrengend. Daher haben die Schwestern hierbei Unterstützung von zwei Freiwilligen. Beim Verpacken der Hostien klingelt Schwester Priskas “schnurloses Telefon”, wie die Schwestern ihr Smartphone nennen, mehrmals. Es gibt viele Abnehmer der hochwertigen Hostien. Schwester Priska hilft in der Bäckerei, wenn sie als Oberin nicht anderen Verpflichtungen nachkommen muss. Sie verrichtet das Amt der Oberin schon seit mehreren Jahren und achtet darauf, dass sich jede Schwester ideal entfalten kann. Den nächsten Jahren blickt sie mit gemischten Gefühlen entgegen. Wird sie auf das Ende des Klosters angesprochen, so muss sie erst einmal kurz durchatmen. Mittlerweile könne sie es akzeptieren, denn die Welt habe sich nun einmal verändert und das sei auch in Ordnung so. Jedoch hätte diese Akzeptanz ihre Zeit gedauert und mit der Zukunftsperspektive, die sich durch das Zentrum für Arbeit und Stille bieten, lasse sie optimistisch in die Zukunft blicken. “Solange diese Gemäuer belebt sind, leben auch wir in gewisser Weise weiter.” Das ist, was sie möchten. Auch wenn es zu Ende geht, soll diese Art zu leben nicht vergessen werden.
 
