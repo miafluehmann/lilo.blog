@@ -15,12 +15,12 @@ Mia Flühmann und Line Gmür
 Das Läuten der Glocke hallt durch weitläufige Gänge. Mit dem letzten Schlag kehrt wieder Stille ein. Eine Stille, die für die Bewohnerinnen dieses Gemäuers alltäglich ist. Kurze Zeit darauf hört man von verschiedenen Seiten schlurfende Schritte, die alle das gleiche Ziel haben: das Gebetszimmer. In einem Zimmer mit Wänden, die dem Raum einen holzigen Geruch verleihen, finden sich vier Frauen ein. Bedächtig verbeugt sich eine nach der anderen vor dem Kreuz, bevor sie auf den kissenlosen Holzbänken Platz nehmen. Bis auf Husten und Atmen ist nichts zu hören. Als Letzte betritt Frau Mutter, die Oberin, den Raum. Sie nimmt als Einzige auf einem gepolsterten Stuhl Platz und läutet mit der Klangschale das Mittagsgebet im Kloster Namen Jesú in Solothurn ein.
 
 
-### *Herr Jesus Christus, du Anfang und Ende unserer Wege*\
-### *Wir wollen mit dir beginnen*\
-### *Es sind die alten Wege, die damals gegangen*\
-### *als du mit uns anfingst in der Taufe*
+#### *Herr Jesus Christus, du Anfang und Ende unserer Wege*\
+#### *Wir wollen mit dir beginnen*\
+#### *Es sind die alten Wege, die damals gegangen*\
+#### *als du mit uns anfingst in der Taufe*
 
-### *Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
+#### *Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
 
 
 
@@ -31,7 +31,7 @@ An den Esssaal grenzt eine geräumige Küche. Der Edelstahl glänzt und alles wi
 
 
 
-### *Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
+#### *Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
 
 
 
@@ -39,7 +39,7 @@ Unser Rundgang führt uns weiter zum Lift. Auch dieser wurde gebaut, um das Lebe
 Mit einem Batch öffnet Schwester Therese die Tür zum hauseigenen Museum. In einem schwach beleuchteten Raum türmen sich Gegenstände aus der Apotheke,  der Schuhmacherei, der Landwirtschaft und der Metzgerei.  “Diese Dinge sollten alle weggeworfen werden. Wenn sie dafür in den Keller gebracht wurden, habe ich sie auf der anderen Seite wieder hochgetragen und in meinem Zimmer oder hier oben versteckt”, erklärt Schwester Marta. Dank ihrer Sammelleidenschaft konnten die Schwestern ihr eigenes Museum errichten. Bisher hatten nur vereinzelt Besuchende Zutritt. Schwester Therese meint aber, ihr Wunsch sei es, das Museum besonders für Schulen zugänglich zu machen, damit dieses traditionelle Leben nicht in Vergessenheit gerate. 
 
 
-### *Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
+#### *Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
 
 
 
@@ -56,7 +56,7 @@ Nach dem Mittagsgebet im Gebetszimmer schreitet die Gemeinschaft bedächtig in d
 Im ersten Stock befinden sich die Zellen, die Schlafzimmer. Viele von ihnen stehen jedoch leer. Doch nicht mehr lange. Im Mai 2023 ist ein Projekt im Westflügel des Klosters angelaufen. “Das Zentrum für Arbeit und Stille” soll in Zukunft ein Ort für ruhesuchende Menschen werden und auch Übernachtungsmöglichkeiten anbieten. Es gibt auch bereits erste Pläne, wie das ganze Gebäude nach der Schwesternschaft genutzt werden soll. Den Schwestern ist dabei wichtig, Mitspracherecht bei der Planung zu haben.
 
 
-### *Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
+#### *Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
 
 
 
@@ -65,8 +65,8 @@ Der Rundgang endet in der hauseigenen Hostienbäckerei. Die Plättchen aus Wasse
 Bei einer kleinen Kaffeepause wird über die nächsten Tage gesprochen, denn es gibt so einiges zu tun im Kloster Namen Jesú. Es warten noch zahlreiche christliche Feiern, bis im Kloster Namen Jesú das letzte Gebet gesprochen wird. Wir verlassen das Kloster, inspiriert und beeindruckt von diesen offenen und optimistischen Frauen. Trotzdem hinterlässt der Besuch auch eine Bedrücktheit. Fragen über die Zukunft des Klosters beschäftigen uns noch lange. Mit einem letzten Blick auf den Eingang entfernen wir uns von diesem Ort. Morgen am Dreikönigstag wird der Schriftzug über der Tür erneuert. Doch wann die Schwestern das letzte Mal durchs Haus wandern und den Dreikönigssegen vollziehen, das weiss niemand. 
 
 
-### *Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
+#### *Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
 
-### ***C**hristus **m**ansionem **b**enedicat - Gott segne dieses Haus*
+#### ***C**hristus **m**ansionem **b**enedicat - Gott segne dieses Haus*
 
-###*Amen.*
+####*Amen.*
