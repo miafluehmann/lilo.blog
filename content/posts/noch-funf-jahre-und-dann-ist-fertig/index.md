@@ -19,7 +19,7 @@ Kloster Namen Jesú, Solothurn. Die Uhr tickt. Ansonsten herrscht im Sprechzimme
 
 #### Hätten Sie als Jugendliche gedacht, dass Sie später in einem Kloster leben würden?
 
-Ja, das war bereits als Jugendliche mein Wunsch. Ich bin in einer katholischen Familie aufgewachsen, aber wir haben nie über den Glauben gesprochen. Wir sechs Kinder gingen alle in die Kirche. Es war klar, dass wir jeden Sonntag hingehen. Wir haben nie nachgefragt. Später hatte ich eine Freundin, die in ihrem Elternhaus viele Glaubensgespräche geführt hat. Mit ihr zusammen habe ich dann auch über den Glauben gesprochen. Da waren wie vierzehn und haben beide Krankenpflegerin gelernt. Sie ist später auch in ein Kloster gegangen, aber ein anderes als ich. Dort lebt sie bis heute noch.
+Ja, das war bereits als Jugendliche mein Wunsch. Ich bin in einer katholischen Familie aufgewachsen, aber wir haben nie über den Glauben gesprochen. Wir sechs Kinder gingen alle in die Kirche. Es war klar, dass wir jeden Sonntag hingehen. Wir haben nie nachgefragt. Später hatte ich eine Freundin, die in ihrem Elternhaus viele Glaubensgespräche geführt hat. Mit ihr zusammen habe ich dann auch über den Glauben gesprochen. Da waren wir vierzehn und haben beide Krankenpflegerin gelernt. Sie ist später auch in ein Kloster gegangen, aber ein anderes als ich. Dort lebt sie bis heute noch.
 
 #### Sie waren sehr jung, als Sie ins Kloster eingetreten sind. Hatten Sie am Anfang Zweifel?
 
