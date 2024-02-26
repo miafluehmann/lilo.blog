@@ -10,7 +10,7 @@ description = ""
 
 Mia Flühmann und Line Gmür
 
-![Zeuginnen der Vergangenheit: Schädel von ehemaligen Schwestern, die im Laufe der 400-jährigen Existenz im Kloster Namen Jesú verstorben sind. (Fotografie von Mia Flühmann, Stand: 5.1.24)](klost.jpg)
+![Zeuginnen der Vergangenheit: Schädel ehemaliger Schwestern, die im Laufe der 400-jährigen Existenz im Kloster Namen Jesú verstorben sind. (Fotografie von Mia Flühmann, Stand: 5.1.24)](klost.jpg)
 
 Das Läuten der Glocke hallt durch weitläufige Gänge. Mit dem letzten Schlag kehrt wieder Stille ein. Eine Stille, die für die Bewohnerinnen dieses Gemäuers alltäglich ist. Kurze Zeit darauf hört man von verschiedenen Seiten schlurfende Schritte, die alle das gleiche Ziel haben: das Gebetszimmer. In einem Zimmer mit Wänden, die dem Raum einen holzigen Geruch verleihen, finden sich vier Frauen ein. Bedächtig verbeugt sich eine nach der anderen vor dem Kreuz, bevor sie auf den kissenlosen Holzbänken Platz nehmen. Bis auf Husten und Atmen ist nichts zu hören. Als Letzte betritt Frau Mutter, die Oberin, den Raum. Sie nimmt als Einzige auf einem gepolsterten Stuhl Platz und läutet mit der Klangschale das Mittagsgebet im Kloster Namen Jesú in Solothurn ein.
 
