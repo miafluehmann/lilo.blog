@@ -14,19 +14,25 @@ Mia Flühmann und Line Gmür
 
 Das Läuten der Glocke hallt durch weitläufige Gänge. Mit dem letzten Schlag kehrt wieder Stille ein. Eine Stille, die für die Bewohnerinnen dieses Gemäuers alltäglich ist. Kurze Zeit darauf hört man von verschiedenen Seiten schlurfende Schritte, die alle das gleiche Ziel haben: das Gebetszimmer. In einem Zimmer mit Wänden, die dem Raum einen holzigen Geruch verleihen, finden sich vier Frauen ein. Bedächtig verbeugt sich eine nach der anderen vor dem Kreuz, bevor sie auf den kissenlosen Holzbänken Platz nehmen. Bis auf Husten und Atmen ist nichts zu hören. Als Letzte betritt Frau Mutter, die Oberin, den Raum. Sie nimmt als Einzige auf einem gepolsterten Stuhl Platz und läutet mit der Klangschale das Mittagsgebet im Kloster Namen Jesú in Solothurn ein.
 
-Herr Jesus Christus, du Anfang und Ende unserer Wege\
-Wir wollen mit dir beginnen\
-Es sind die alten Wege, die damals gegangen\
-als du mit uns anfingst in der Taufe
 
-Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.
+
+*Herr Jesus Christus, du Anfang und Ende unserer Wege*\
+*Wir wollen mit dir beginnen*\
+*Es sind die alten Wege, die damals gegangen*\
+*als du mit uns anfingst in der Taufe*
+
+*Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
+
+
 
 Hinter der Holztür, auf deren Türrahmen der Schriftzug C+M+B 23 steht, eröffnet sich das Labyrinth. Ein Geflecht aus Gängen, in dem sich ausschliesslich die Schwestern zurechtfinden. Zuerst betritt man ein Vorzimmer, wo wohl früher eine Schwester die Gäste am Empfang begrüsste. Doch seit jeher ist einige Zeit vergangen und so muss man selbst an der geflochtenen Kordel ziehen, um die Glocke zu betätigen.\
 Schon kommt Schwester Therese um die Ecke, als hätte sie auf uns gewartet. Lächelnd begrüsst sie uns. Eine Begrüssung, die von der Gastfreundschaft der Kapuzinerinnen zeugt. Gemächlich werden wir durch einen dunklen, etwas muffig riechenden Korridor geführt, vorbei an einem Trottinett. Dieses Gefährt würde man in einem Kloster nicht vermuten, doch manchmal rollt die Oberin, Schwester Priska, damit durch die weitläufigen Gänge. Geht man morgens durch das Gebäude, so trifft man an den verschiedensten Ecken auf die Schwestern. Jede hat ihre Aufgaben. Schwester Regina trifft man im Esssaal an. Dort staubt die 92-jährige Luzernerin die Bänke mit einem bunten Staubwedel ab oder deckt bereits den Tisch für das Mittagessen. Es soll heute Raclette geben, doch ob man dafür Fondue-Gabeln oder Raclette-Pfännchen benutzt, muss Schwester Regina erst noch nachfragen.
 
-
-
 An den Esssaal grenzt eine geräumige Küche. Der Edelstahl glänzt und alles wirkt sehr modern. Die Schwestern kochen jedoch nicht selbst. Sie bestellen oft in einem nahegelegenen Pflegeheim und haben eine Küchenhilfe, die sie regelmässig unterstützt. Auch abseits der Küche erlebt das Klosterleben einen enormen Wandel. Während die Schwesterngemeinschaft früher mit Landwirtschaft und anderen Handwerkskünsten selbstversorgend war, sind die fünf Schwestern, mit einem Altersdurchschnitt von 80 Jahren, heute auf Hilfe von aussen angewiesen. So kümmert sich beispielsweise  Gartenbaufirma um die Umgebung, ein Imker um die Bienen und ein Bauer um einen Teil des Landes. Die Zeit des vollkommenen Rückzuges ist vorbei. Doch die Schwestern sind positiv gegenüber der Veränderung gestimmt und schätzen den Kontakt mit anderen Menschen sehr. Sie freuen sich, wenn Bekannte auf einen Kaffee vorbeischauen und mit ihnen plaudern, oder die Gäste in der Kirche ihnen kleine Aufmerksamkeiten zukommen lassen.
+
+
+
+*Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
 
 
 
@@ -35,7 +41,7 @@ Mit einem Batch öffnet Schwester Therese die Tür zum hauseigenen Museum. In ei
 
 
 
-Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.
+*Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
 
 
 
@@ -53,7 +59,7 @@ Im ersten Stock befinden sich die Zellen, die Schlafzimmer. Viele von ihnen steh
 
 
 
-`Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.`
+*Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
 
 
 
@@ -63,8 +69,8 @@ Bei einer kleinen Kaffeepause wird über die nächsten Tage gesprochen, denn es 
 
 
 
-Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.
+*Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.*
 
-Christus mansionem benedicat - Gott segne dieses Haus
+***C**hristus **m**ansionem **b**enedicat - Gott segne dieses Haus*
 
-Amen.
+*Amen.*
