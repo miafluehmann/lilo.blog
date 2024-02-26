@@ -1,6 +1,6 @@
 +++
 title = "Das letzte Gebet"
-date = "2024-02-14"
+date = "2024-02-26"
 draft = false
 pinned = false
 image = "klost.jpg"
