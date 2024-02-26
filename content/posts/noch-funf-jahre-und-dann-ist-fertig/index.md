@@ -19,19 +19,19 @@ Kloster Namen Jesú, Solothurn. Die Uhr tickt. Ansonsten herrscht im Sprechzimme
 
 
 
-\#### Hätten Sie als Jugendliche gedacht, dass Sie später in einem Kloster leben würden?
+#### Hätten Sie als Jugendliche gedacht, dass Sie später in einem Kloster leben würden?
 
 Ja, das war bereits als Jugendliche mein Wunsch. Ich bin in einer katholischen Familie aufgewachsen, aber wir haben nie über den Glauben gesprochen. Wir sechs Kinder gingen alle in die Kirche. Es war klar, dass wir jeden Sonntag hingehen. Wir haben nie nachgefragt. Später hatte ich eine Freundin, die in ihrem Elternhaus viele Glaubensgespräche geführt hat. Mit ihr zusammen habe ich dann auch über den Glauben gesprochen. Da waren wie vierzehn und haben beide Krankenpflegerin gelernt. Sie ist später auch in ein Kloster gegangen, aber ein anderes als ich. Dort lebt sie bis heute noch.
 
 
 
-\#### Sie waren sehr jung, als Sie ins Kloster eingetreten sind. Hatten Sie am Anfang Zweifel?
+#### Sie waren sehr jung, als Sie ins Kloster eingetreten sind. Hatten Sie am Anfang Zweifel?
 
 Ja, ich war schon sehr jung. Für mich war das Schwerste, meinen Beruf als Krankenschwester aufzugeben und nicht so sehr, die Familie zu verlassen. Das Kloster, auch das in Deutschland ist ein sogenanntes geschlossenes Kloster. Das heisst, wir üben keine Tätigkeiten nach aussen aus. Wir haben keinen Kindergarten, kein Krankenhaus und keine Schule. Wir sorgen für unseren eigenen Unterhalt, haben einen grossen Garten und nähen und waschen alles selbst. 
 
 
 
-\#### Was hat sich in diesen dreissig Jahren verändert, in denen Sie hier sind?
+#### Was hat sich in diesen dreissig Jahren verändert, in denen Sie hier sind?
 
 Wir haben jetzt sehr viele Angestellte, die uns helfen, weil wir nicht mehr alles allein schaffen. Zum Beispiel in der Küche, im Garten, für die Wäsche oder die Krankenpflege. Auch in der Hostienbäckerei haben wir Hilfe. Das wäre früher undenkbar gewesen, dass jemand, der nicht zur Schwesterngemeinschaft gehört, das Kloster betritt. Früher wurde die Klausur sehr streng gehalten, aber jetzt können wir gar nicht anders. Wir sind auf Hilfe angewiesen.
 
@@ -39,13 +39,13 @@ Wir haben jetzt sehr viele Angestellte, die uns helfen, weil wir nicht mehr alle
 
 
 
-\#### In den letzten Jahren ist das Kloster durch das “Zentrum von Arbeit und Stille” und Ihre Mitarbeitenden offener geworden. Wie denken Sie darüber?
+#### In den letzten Jahren ist das Kloster durch das “Zentrum von Arbeit und Stille” und Ihre Mitarbeitenden offener geworden. Wie denken Sie darüber?
 
 Ich finde das sehr positiv, denn mein Wunsch und auch unser Wunsch ist es, dass das Kloster hier nicht einfach stirbt und zugemacht wird, sondern dass es vielleicht in einer anderen Form oder mit anderen Menschen weitergeht. Wir werden ja immer älter. Ich sage immer: Noch fünf Jahre und dann ist fertig.
 
 
 
-\#### Wieviel bekommen Sie vom Geschehen ausserhalb des Klosters mit?
+#### Wieviel bekommen Sie vom Geschehen ausserhalb des Klosters mit?
 
 Wir lesen die Solothurner Tageszeitung. Eine Schwester kam aus Luzern, sie ist schon lange verstorben, aber die Zeitung von Luzern kriegen wir immer noch. Sonntagabend schauen wir gemeinsam im Fernseher die Nachrichten. An anderen Tagen dürften wir eigentlich auch die Nachrichten schauen, doch meistens haben wir dann Gebetszeit. Einmal in der Woche haben wir einen freien Tag, da können wir zum Beispiel auch einen Film schauen.
 
@@ -55,37 +55,37 @@ Wir lesen die Solothurner Tageszeitung. Eine Schwester kam aus Luzern, sie ist s
 
 
 
-\#### Was denken Sie über die heutige Jugend?
+#### Was denken Sie über die heutige Jugend?
 
 Ich kenne zu wenig junge Leute, aber ihr macht einen sehr guten Eindruck. Sehr solide, einfach und freundlich. Wir haben im Kloster einen jungen Gärtner. Er heisst David, ist einundzwanzig Jahre alt und hilft Schwester Marta im Garten. Er verehrt uns und ist immer sehr zuvorkommend. Er schätzt uns sehr.
 
 
 
-\#### Denken Sie, dass das Klosterleben in unserer modernen, schnelllebigen Welt noch relevant ist?
+#### Denken Sie, dass das Klosterleben in unserer modernen, schnelllebigen Welt noch relevant ist?
 
 Ich glaube nicht. Da muss einfach etwas anderes kommen, eine andere Gemeinschaft mit anderen Aufgaben. Ich glaube, so kann es nicht weitergehen, weil junge Menschen sich nicht mehr vorstellen können, dieses versteckte Leben zu führen.
 
 
 
-\#### Was müsste sich aus Ihrer Sicht ändern, damit sich junge Menschen für ein Klosterleben interessieren?
+#### Was müsste sich aus Ihrer Sicht ändern, damit sich junge Menschen für ein Klosterleben interessieren?
 
 Es bräuchte mehr Offenheit und wahrscheinlich auch, dass man sich nicht mehr auf Lebenszeit verpflichten muss. Eine Verpflichtung bis ans Lebensende, das glaube ich, geht heute nicht mehr. Die Ehen heute halten ja meistens auch nicht mehr bis zum Lebensende.
 
 
 
-\#### Gibt es konkrete Pläne, was in Zukunft mit dem Kloster passieren wird?
+#### Gibt es konkrete Pläne, was in Zukunft mit dem Kloster passieren wird?
 
 Im Moment noch nicht. Aber es sind Gespräche im Gange. Die Leute vom “Zentrum für Arbeit und Stille”, die machen schon ein paar Pläne. Sie rechnen aber damit, dass wir noch eine Weile hier bleiben.
 
 
 
-\#### Können Sie bei diesen Plänen mitreden?
+#### Können Sie bei diesen Plänen mitreden?
 
 Ich glaube schon. Das ist uns auch wichtig. Wir sagen ihnen auch immer, sie sollen vorwärts machen. Wir möchten noch mitreden, was nach uns hier geschieht. Jetzt können wir noch.
 
 
 
-\#### Was wünschen Sie sich für Ihre Zukunft und für die des Klosters?
+#### Was wünschen Sie sich für Ihre Zukunft und für die des Klosters?
 
 Ich wünsche mir, dass eine andere Gemeinschaft das Kloster übernehmen würde. Das wäre ideal. Wir wünschen uns, dass wir hier im Kloster noch unseren Lebensabend verbringen können. Für meine persönliche Zukunft denke ich eigentlich nur ans Pflegeheim. Das würde mich nicht so stören.
 
