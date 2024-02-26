@@ -52,6 +52,8 @@ Nach dem Mittagsgebet im Gebetszimmer schreitet die Gemeinschaft bedächtig in d
 
 
 
+
+
 > *"Ich gebe dem Ganzen noch fünf Jahre” (Schwester Therese)*
 
 
