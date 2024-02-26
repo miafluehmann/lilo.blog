@@ -50,6 +50,8 @@ Seit 1992 lebt die 82- jährige Schwester Therese im Kloster Namen Jesú. Aktuel
 Wir lesen die Solothurner Tageszeitung. Eine Schwester kam aus Luzern, sie ist schon lange verstorben, aber die Zeitung von Luzern kriegen wir immer noch. Sonntagabend schauen wir gemeinsam im Fernseher die Nachrichten. An anderen Tagen dürften wir eigentlich auch die Nachrichten schauen, doch meistens haben wir dann Gebetszeit. Einmal in der Woche haben wir einen freien Tag, da können wir zum Beispiel auch einen Film schauen.
 
 > "Wir sind auf Hilfe angewiesen" (Schwester Therese)
+>
+>
 
 #### Was denken Sie über die heutige Jugend?
 
@@ -78,3 +80,5 @@ Ich wünsche mir, dass eine andere Gemeinschaft das Kloster übernehmen wird. Da
 
 
 > "Wir möchten noch mitreden, was nach uns hier geschieht. Jetzt können wir noch." (Schwester Therese)
+>
+>
