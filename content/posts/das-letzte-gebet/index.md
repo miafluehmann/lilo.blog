@@ -41,7 +41,11 @@ Mit einem Batch öffnet Schwester Therese die Tür zum hauseigenen Museum. In ei
 
 
 
+
+
 ***Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.***
+
+
 
 
 
