@@ -21,7 +21,7 @@ Das Läuten der Glocke hallt durch weitläufige Gänge. Mit dem letzten Schlag k
 
 ***Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.***
 
-*(Ausschnitt aus dem Mittagsgebet in Kloster Namen Jesú, Stand 5.1.24)*
+*(Ausschnitt aus dem Mittagsgebet im Kloster Namen Jesú, Stand 5.1.24)*
 
 Hinter der Holztür, auf deren Türrahmen der Schriftzug *C+M+B 23* steht, eröffnet sich das Labyrinth. Ein Geflecht aus Gängen, in dem sich ausschliesslich die Schwestern zurechtfinden. Zuerst betritt man ein Vorzimmer, wo wohl früher eine Schwester die Gäste am Empfang begrüsste. Doch seit jeher ist einige Zeit vergangen und so muss man selbst an der geflochtenen Kordel ziehen, um die Glocke zu betätigen.\
 Schon kommt Schwester Therese um die Ecke, als hätte sie auf uns gewartet. Lächelnd begrüsst sie uns. Eine Begrüssung, die von der Gastfreundschaft der Kapuzinerinnen zeugt. Gemächlich werden wir durch einen dunklen, etwas muffig riechenden Korridor geführt, vorbei an einem Trottinett. Dieses Gefährt würde man in einem Kloster nicht vermuten, doch manchmal rollt die Oberin, Schwester Priska, damit durch die weitläufigen Gänge. Geht man morgens durch das Gebäude, so trifft man an den verschiedensten Ecken auf die Schwestern. Jede hat ihre Aufgaben. Schwester Regina iat im Esssaal anzutreffen. Dort staubt die 92-jährige Luzernerin die Bänke mit einem bunten Staubwedel ab oder deckt bereits den Tisch für das Mittagessen. Es soll heute Raclette geben, doch ob man dafür Fondue-Gabeln oder Raclette-Pfännchen benutzt, muss Schwester Regina erst noch nachfragen.
