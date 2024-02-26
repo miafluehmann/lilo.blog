@@ -23,7 +23,7 @@ Ja, das war bereits als Jugendliche mein Wunsch. Ich bin in einer katholischen F
 
 #### Sie waren sehr jung, als Sie ins Kloster eingetreten sind. Hatten Sie am Anfang Zweifel?
 
-Ja, ich war schon sehr jung. Für mich war das Schwerste, meinen Beruf als Krankenschwester aufzugeben und nicht so sehr, die Familie zu verlassen. Das Kloster, auch das in Deutschland ist ein sogenanntes geschlossenes Kloster. Das heisst, wir üben keine Tätigkeiten nach aussen aus. Wir haben keinen Kindergarten, kein Krankenhaus und keine Schule. Wir sorgen für unseren eigenen Unterhalt, haben einen grossen Garten und nähen und waschen alles selbst. 
+Ja, ich war schon sehr jung. Für mich war das schwerste, meinen Beruf als Krankenschwester aufzugeben und nicht so sehr, die Familie zu verlassen. Das Kloster, auch das in Deutschland ist ein sogenanntes geschlossenes Kloster. Das heisst, wir üben keine Tätigkeiten nach aussen aus. Wir haben keinen Kindergarten, kein Krankenhaus und keine Schule. Wir sorgen für unseren eigenen Unterhalt, haben einen grossen Garten und nähen und waschen alles selbst. 
 
 #### Was hat sich in diesen dreissig Jahren verändert, in denen Sie hier sind?
 
