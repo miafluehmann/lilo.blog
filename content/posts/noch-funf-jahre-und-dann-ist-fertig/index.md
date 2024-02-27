@@ -7,7 +7,7 @@ image = "therese.jpg"
 +++
 {{<lead>}}
 
-Die 82-jährige Schwester Therese ist vor 30 Jahren als Letzte ins Kloster Namen Jesú eingetreten. An das zukünftige Bestehen der Schwesterngemeinschaft glaubt sie schon lange nicht mehr.
+Die 82-jährige Schwester Therese ist vor dreissig Jahren als Letzte ins Kloster Namen Jesú eingetreten. An das zukünftige Bestehen der Schwesterngemeinschaft glaubt sie schon lange nicht mehr.
 
 {{</lead>}}
 
@@ -33,25 +33,17 @@ Wir haben jetzt sehr viele Angestellte, die uns helfen, weil wir nicht mehr alle
 
 Ich finde das sehr positiv, denn mein Wunsch und auch unser Wunsch ist es, dass das Kloster hier nicht einfach stirbt und zugemacht wird, sondern dass es vielleicht in einer anderen Form oder mit anderen Menschen weitergeht. Wir werden ja immer älter. Ich sage immer: Noch fünf Jahre und dann ist fertig.
 
-
-
 {{<box>}}
 
-Seit 1992 lebt die 82- jährige Schwester Therese im Kloster Namen Jesú. Aktuell leben insgesamt noch fünf Schwestern in der Gemeinschaft. Mit einem Altersdurchschnitt von 80 Jahren sind sie auf externe Hilfe angewiesen. Deshalb helfen ihnen zwei pensionierte Männer in der Hostienbäckerei, Gärtner helfen ihnen beim Unterhalt und auch in der Küche bekommen sie durch eine Küchenhilfe Unterstützung. Seit über 400 Jahren wird im Kapuzinerinnenkloster Namen Jesú das monastische Leben der Schwesterngemeinschaft gepflegt. Der Umgang mit der Aussenwelt beschränkte sich früher auf ein Minimum. Heute sieht dies jedoch anders aus. Mit der Organisation "Zentrum für Arbeit und Stille" haben sich die Pforten des Klosters ein gutes Stück geöffnet. Das "Zentrum für Arbeit und Stille" nutzt einen Teil der Klosterräume und bietet schöne, stille Arbeitsräume und Ateliers an. Auch der Garten soll in Zukunft für die Öffentlichkeit zugänglich gemacht werden. Auf der 2,8 Hektar grossen Fläche sollen Führungen, Workshops und kulturelle Veranstaltungen stattfinden. Das Leben des vollkommenen Rückzuges ist vorbei.
+Seit 1992 lebt die 82- jährige Schwester Therese im Kloster Namen Jesú. Aktuell leben insgesamt noch fünf Schwestern in der Gemeinschaft. Mit einem Altersdurchschnitt von 80 Jahren sind sie auf externe Hilfe angewiesen. Deshalb helfen ihnen zwei pensionierte Männer in der Hostienbäckerei, Gärtner helfen ihnen beim Unterhalt und auch beim Kochen bekommen sie Unterstützung durch eine Küchenhilfe. Seit über 400 Jahren wird im Kapuzinerinnenkloster Namen Jesú das monastische Leben der Schwesterngemeinschaft gepflegt. Der Umgang mit der Aussenwelt beschränkte sich früher auf ein Minimum. Heute sieht dies jedoch anders aus. Mit der Organisation "Zentrum für Arbeit und Stille" haben sich die Pforten des Klosters ein gutes Stück geöffnet. Das "Zentrum für Arbeit und Stille" nutzt einen Teil der Klosterräume und bietet schöne, stille Arbeitsräume und Ateliers an. Auch der Garten soll in Zukunft für die Öffentlichkeit zugänglich gemacht werden. Auf der 2,8 Hektar grossen Fläche sollen Führungen, Workshops und kulturelle Veranstaltungen stattfinden. Das Leben des vollkommenen Rückzuges ist vorbei.
 
 {{</box>}}
-
-
-
-
 
 #### Wie viel bekommen Sie vom Geschehen ausserhalb des Klosters mit?
 
 Wir lesen die Solothurner Tageszeitung. Eine Schwester kam aus Luzern, sie ist schon lange verstorben, aber die Zeitung von Luzern kriegen wir immer noch. Sonntagabend schauen wir gemeinsam im Fernseher die Nachrichten. An anderen Tagen dürften wir eigentlich auch die Nachrichten schauen, doch meistens haben wir dann Gebetszeit. Einmal in der Woche haben wir einen freien Tag, da können wir zum Beispiel auch einen Film schauen.
 
 > "Wir sind auf Hilfe angewiesen" (Schwester Therese)
->
->
 
 #### Was denken Sie über die heutige Jugend?
 
@@ -77,8 +69,4 @@ Ich glaube schon. Das ist uns auch wichtig. Wir sagen ihnen auch immer, sie soll
 
 Ich wünsche mir, dass eine andere Gemeinschaft das Kloster übernehmen wird. Das wäre ideal. Wir wünschen uns, dass wir hier im Kloster noch unseren Lebensabend verbringen können. Für meine persönliche Zukunft denke ich eigentlich nur ans Pflegeheim. Das würde mich nicht so stören.
 
-
-
 > "Wir möchten noch mitreden, was nach uns hier geschieht. Jetzt können wir noch." (Schwester Therese)
->
->
