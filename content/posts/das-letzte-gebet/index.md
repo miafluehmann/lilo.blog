@@ -26,18 +26,30 @@ Das Läuten der Glocke hallt durch weitläufige Gänge. Mit dem letzten Schlag k
 Hinter der Holztür, auf deren Türrahmen der Dreikönigssegen *C+M+B 23* steht, eröffnet sich das Labyrinth. Ein Geflecht aus Gängen, in dem sich ausschliesslich die Schwestern zurechtfinden. Zuerst betritt man ein Vorzimmer, wo wohl früher eine Schwester die Gäste am Empfang begrüsste.  Heutzutage jedoch, muss man selbst an der geflochtenen Kordel ziehen, um die Glocke zu betätigen.\
 Schon kommt Schwester Therese um die Ecke, als hätte sie auf uns gewartet. Lächelnd begrüsst sie uns. Eine Begrüssung, die von der Gastfreundschaft der Kapuzinerinnen zeugt. Gemächlich werden wir durch einen dunklen, etwas muffig riechenden Korridor geführt, vorbei an einem Trottinett. Dieses Gefährt würde man in einem Kloster nicht vermuten, doch manchmal rollt die Oberin, Schwester Priska, damit durch die weitläufigen Gänge. Geht man morgens durch das Gebäude, so trifft man an den verschiedensten Ecken auf die Schwestern. Jede hat ihre Aufgaben. Schwester Regina ist im Esssaal anzutreffen. Dort staubt die 92-jährige Luzernerin die Bänke mit einem bunten Staubwedel ab oder deckt bereits den Tisch für das Mittagessen. Es soll heute Raclette geben, doch ob man dafür Fondue-Gabeln oder Raclette-Pfännchen benutzt, muss Schwester Regina erst noch nachfragen.
 
+
+
+***Im Wandel***
+
 An den Esssaal grenzt eine geräumige Küche. Der Edelstahl glänzt und alles wirkt sehr modern. Die Schwestern kochen jedoch nicht selbst. Sie bestellen das Essen oft in einem nahegelegenen Pflegeheim und haben eine Küchenhilfe, die sie regelmässig unterstützt. Auch abseits der Küche erlebt das Klosterleben einen enormen Wandel. Während die Schwesterngemeinschaft früher mit Landwirtschaft und anderen Handwerkskünsten selbstversorgend war, sind die fünf Schwestern, mit einem Altersdurchschnitt von 80 Jahren, heute auf Hilfe von aussen angewiesen. So kümmert sich beispielsweise  eine Gartenbaufirma um die Umgebung, ein Imker um die Bienen und ein Bauer um einen Teil des Landes. Die Zeit des vollkommenen Rückzuges ist vorbei. Doch die Schwestern sind positiv gegenüber der Veränderung gestimmt und schätzen den Kontakt mit anderen Menschen sehr. Sie freuen sich, wenn Bekannte auf einen Kaffee vorbeischauen und mit ihnen plaudern, oder die Gäste in der Kirche ihnen kleine Aufmerksamkeiten zukommen lassen.
 
-***Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.***
+
+
+***Zeitreise in die Blütezeit***
 
 Unser Rundgang führt uns weiter zum Lift. Auch dieser wurde gebaut, um das Leben der Schwesternschaft zu erleichtern. Gemeinsam mit Schwester Therese und Schwester Marta fahren wir in den Estrich. Alte Balken und Schnüre, an denen früher Wäsche hing, unebener Boden, modrige kühle Luft und alte Kisten. Es ist eine Zeitreise dahin zurück, als das Klosterleben seine Blütezeit erlebte. Schwester Marta ist mit 19 Jahren in dieses Kloster eingetreten und somit die Dienstälteste. Lächelnd denkt sie zurück an die Zeit, als das Kloster Namen Jesú noch 38 Schwestern zählte. Die gebürtige Solothurnerin lebt schon immer in dieser Stadt und besuchte die Schule dieses Klosters. Gerne fährt die 93-Jährige noch heute mit dem Fahrrad ins Stadtzentrum oder hilft dem Gärtner. Sie liebt ihre Arbeit und denkt nicht daran, sich auf ihrem Alter auszuruhen.\
 Mit einem Batch öffnet Schwester Therese die Tür zum hauseigenen Museum. In einem schwach beleuchteten Raum türmen sich Gegenstände aus der Apotheke,  der Schuhmacherei, der Landwirtschaft und der Metzgerei.  “Diese Dinge sollten alle weggeworfen werden. Wenn sie dafür in den Keller gebracht wurden, habe ich sie auf der anderen Seite wieder hochgetragen und in meinem Zimmer oder hier oben versteckt”, erklärt Schwester Marta. Dank ihrer Sammelleidenschaft konnten die Schwestern ihr eigenes Museum errichten. Bisher hatten nur vereinzelt Besuchende Zutritt. Schwester Therese meint aber, ihr Wunsch sei es, das Museum besonders für Schulen zugänglich zu machen, damit dieses traditionelle Leben nicht in Vergessenheit gerate. 
 
-***Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.***
+
+
+***Leere Bänke an den Gottesdiensten***
 
 Für Schwester Therese geht es nun an ihre Arbeit. Sie ist für Kirche und Sakristei zuständig. Heute steht etwas Besonderes auf ihrem Arbeitsplan. Sie bereitet das Material für die Segnung des Weihwassers vor. Morgen, am Dreikönigstag, ziehen die Schwestern durchs Haus, beschriften die Türrahmen mit dem Dreikönigssegen und segnen sie mit dem Weihwasser. Die Gebete, die die Schwestern jeden Abend in der Kirche abhalten, sind öffentlich. Doch verirrt sich kaum noch jemand hierher. “Ich habe der Oberin immer gesagt, sie solle noch mehr Heftchen für die Gebete drucken. Es kämen so viele Leute und wir bräuchten sie. Tja, und jetzt haben wir viel zu viele von diesen Heften", erzählt Schwester Therese mit einem bedauerlichen Lächeln.
 
 ![Die Blütezeit ist vorbei: Aussicht vom Klostergarten auf den Ostflügel des Gemäuers. (Fotografie von Line Gmür, Stand 5.1.24)](klosterli.jpg)
+
+
+
+***Naht ein Ende?***
 
 \
 Nach dem Mittagsgebet im Gebetszimmer schreitet die Gemeinschaft bedächtig in den Esssaal. Früher schwiegen die Schwestern bei Tische, doch da sie nur noch zu fünft sind, plaudern sie mittlerweile. Es wird in Erinnerungen geschwelgt, über die Arbeit und Verwandte gesprochen oder über die Zukunft geredet. Letzteres scheint nicht allen Schwestern gleich leicht zu fallen, denn ihnen allen ist klar: Der Klosteralltag wird nicht mehr von langer Dauer sein. Schwester Therese pflegt zu sagen: «Noch fünf Jahre und dann ist fertig.» Wie genau diese Prognose ist, kann man wohl nicht sagen, doch da es keine Nachfolgerinnen gibt, wird mit dem Ableben der Schwestern wohl auch das Klosterleben sterben. Es scheint fast, als würde diese Tatsache die Schwestern mehr belasten als ihre eigene Vergänglichkeit. Früher war das Klosterleben für Frauen ein sozialer Aufstieg. Heute jedoch stehen ihnen viele Türen offen. Das zurückgezogene Leben scheint für jüngere Generationen nicht mehr attraktiv zu sein. Schwester Therese ist vor 30 Jahren als Letzte in das Kloster eingetreten. In dieser Zeit haben etwa 20 Schwestern das Kloster verlassen oder sind verstorben. Die verbliebenen fünf versuchen aber tagtäglich das Beste daraus zu machen und lösungsorientiert in die Zukunft zu blicken.
@@ -53,7 +65,9 @@ Im Kapuzinerinnenkloster Namen Jesú lebt die Schwesterngemeinschaft seit 1609. 
 
 {{</box>}}
 
-***Weise mir, Herr, deinen Weg. Ich will ihn gehen in Treue zu dir.***
+
+
+***Am Ende bleibt die Erinnerung***
 
 Der Rundgang endet in der hauseigenen Hostienbäckerei. Die Plättchen aus Wasser und Mehl sind die Haupteinnahmequelle der Schwestern. Die Herstellung ist körperlich sehr anstrengend. Daher haben die Schwestern hierbei Unterstützung von zwei Freiwilligen. Beim Verpacken der Hostien klingelt Schwester Priskas “schnurloses Telefon”, wie die Schwestern ihr Smartphone nennen, mehrmals. Es gibt viele Abnehmer der hochwertigen Hostien. Schwester Priska hilft in der Bäckerei, wenn sie als Oberin nicht anderen Verpflichtungen nachkommen muss. Sie verrichtet das Amt der Oberin schon seit mehreren Jahren und achtet darauf, dass sich jede Schwester wohlfühlt und alle ihrer eigenen Arbeiten nachgehen können. Den nächsten Jahren blickt sie mit gemischten Gefühlen entgegen. Wird sie auf das Ende des Klosters angesprochen, so muss sie erst einmal kurz durchatmen. Mittlerweile könne sie es akzeptieren, denn die Welt habe sich nun einmal verändert und das sei auch in Ordnung so. Jedoch hätte es seine Zeit gebraucht, bis sie es Akzeptieren konnte. Die Zukunftsperspektive, die sich durch das "Zentrum für Arbeit und Stille" biete, lasse sie optimistisch in die Zukunft blicken. “Solange diese Gemäuer belebt sind, leben auch wir in gewisser Weise weiter.” Das ist, was sie möchten: Auch wenn es zu Ende geht, soll diese Art zu leben nicht vergessen werden.
 
