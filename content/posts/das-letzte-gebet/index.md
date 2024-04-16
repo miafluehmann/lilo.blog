@@ -23,7 +23,7 @@ Das Läuten der Glocke hallt durch weitläufige Gänge. Mit dem letzten Schlag k
 
 *(Ausschnitt aus dem Mittagsgebet im Kloster Namen Jesú, Stand 5.1.24)*
 
-Hinter der Holztür, auf deren Türrahmen der Dreikönigssegen *C+M+B 23* steht, eröffnet sich das Labyrinth. Ein Geflecht aus Gängen, in dem sich ausschliesslich die Schwestern zurechtfinden. Zuerst betritt man ein Vorzimmer, wo wohl früher eine Schwester die Gäste am Empfang begrüsste.  Heutzutage jedoch, muss man selbst an der geflochtenen Kordel ziehen, um die Glocke zu betätigen.\
+Hinter der Holztür, auf deren Türrahmen der Dreikönigssegen *C+M+B 23* steht, eröffnet sich das Labyrinth. Ein Geflecht aus Gängen, in dem sich ausschliesslich die Schwestern zurechtfinden. Zuerst betritt man ein Vorzimmer, wo wohl früher eine Schwester die Gäste am Empfang begrüsste. Heutzutage jedoch, muss man selbst an der geflochtenen Kordel ziehen, um die Glocke zu betätigen.\
 Schon kommt Schwester Therese um die Ecke, als hätte sie auf uns gewartet. Lächelnd begrüsst sie uns. Eine Begrüssung, die von der Gastfreundschaft der Kapuzinerinnen zeugt. Gemächlich werden wir durch einen dunklen, etwas muffig riechenden Korridor geführt, vorbei an einem Trottinett. Dieses Gefährt würde man in einem Kloster nicht vermuten, doch manchmal rollt die Oberin, Schwester Priska, damit durch die weitläufigen Gänge. Geht man morgens durch das Gebäude, so trifft man an den verschiedensten Ecken auf die Schwestern. Jede hat ihre Aufgaben. Schwester Regina ist im Esssaal anzutreffen. Dort staubt die 92-jährige Luzernerin die Bänke mit einem bunten Staubwedel ab oder deckt bereits den Tisch für das Mittagessen. Es soll heute Raclette geben, doch ob man dafür Fondue-Gabeln oder Raclette-Pfännchen benutzt, muss Schwester Regina erst noch nachfragen.
 
 
@@ -43,7 +43,7 @@ Mit einem Batch öffnet Schwester Therese die Tür zum hauseigenen Museum. In ei
 
 ***Leere Bänke an den Gottesdiensten***
 
-Für Schwester Therese geht es nun an ihre Arbeit. Sie ist für Kirche und Sakristei zuständig. Heute steht etwas Besonderes auf ihrem Arbeitsplan. Sie bereitet das Material für die Segnung des Weihwassers vor. Morgen, am Dreikönigstag, ziehen die Schwestern durchs Haus, beschriften die Türrahmen mit dem Dreikönigssegen und segnen sie mit dem Weihwasser. Die Gebete, die die Schwestern jeden Abend in der Kirche abhalten, sind öffentlich. Doch verirrt sich kaum noch jemand hierher. “Ich habe der Oberin immer gesagt, sie solle noch mehr Heftchen für die Gebete drucken. Es kämen so viele Leute und wir bräuchten sie. Tja, und jetzt haben wir viel zu viele von diesen Heften", erzählt Schwester Therese mit einem bedauerlichen Lächeln.
+Für Schwester Therese geht es nun an ihre Arbeit. Sie ist für Kirche und Sakristei zuständig. Heute steht etwas Besonderes auf ihrem Arbeitsplan. Sie bereitet das Material für die Segnung des Weihwassers vor. Morgen, am Dreikönigstag, ziehen die Schwestern durchs Haus, beschriften die Türrahmen mit dem Dreikönigssegen und segnen sie mit dem Weihwasser. Die Gebete, die die Schwestern jeden Abend in der Kirche abhalten, sind öffentlich. Doch verirrt sich kaum noch jemand hierher. "Ich habe der Oberin immer gesagt, sie solle noch mehr Heftchen für die Gebete drucken. Es kämen so viele Leute und wir bräuchten sie. Tja, und jetzt haben wir viel zu viele von diesen Heften", erzählt Schwester Therese mit einem Lächeln des Bedauerns.
 
 ![Die Blütezeit ist vorbei: Aussicht vom Klostergarten auf den Ostflügel des Gemäuers. (Fotografie von Line Gmür, Stand 5.1.24)](klosterli.jpg)
 
